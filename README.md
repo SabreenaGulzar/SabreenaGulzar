@@ -1,5 +1,5 @@
 ### Hi there 👋
-</br>Name: Sabeena
+</br>Name: Sabreena Gulzar
 
 </br>How to reach me: sabreenagulzar.sg@gmail.com
 
